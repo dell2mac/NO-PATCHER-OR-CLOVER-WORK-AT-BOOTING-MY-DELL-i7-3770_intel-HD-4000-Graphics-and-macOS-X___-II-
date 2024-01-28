@@ -1,0 +1,1 @@
+# NO-PATCHER-OR-CLOVER-WORK-AT-BOOTING-MY-DELL-i7-3770_intel-HD-4000-Graphics-and-macOS-X___-II-
